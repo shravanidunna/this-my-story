@@ -5,3 +5,6 @@ To entertain himself, he sang out,
 
 When the villagers heard the cry, they came running up the hill to drive the wolf away.
 But, when they arrived, they saw no wolf. The boy was amused when seeing their angry faces.
+
+“Don’t scream wolf, boy,” warned the villagers, “when there is no wolf!” They angrily went back down the hill.
+
